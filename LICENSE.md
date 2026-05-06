@@ -1,4 +1,4 @@
-
+bedwars professional Scripts offers the most advanced bedwars Script, with auto-sell and undetectable. Perfect for dominating any match.
 
 
 
